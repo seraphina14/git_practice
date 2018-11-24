@@ -4,4 +4,4 @@ This is confusing me
 
 My name is Seraphina. 
 
-I think I'm getting it...slightly
+Honestly, I'm just doing this to expand my knowledge
